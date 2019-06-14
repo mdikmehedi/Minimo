@@ -1,1 +1,1 @@
-# Minimo
+https://mdikmehedi.github.io/Minimo/.
